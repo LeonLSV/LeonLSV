@@ -1,1 +1,1 @@
-![personal-02](https://user-images.githubusercontent.com/65734925/99198037-f7f1da00-2763-11eb-878b-f71df657ad8f.png)
+![personal-02](https://user-images.githubusercontent.com/65734925/101253887-9383c400-36ec-11eb-887b-486389aa216d.png)
